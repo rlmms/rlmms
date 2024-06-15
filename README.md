@@ -2,6 +2,12 @@
 
 *Starting here on Github* <br>
 
+_Here I have a couple of projects Im working on._ <br>
+
+<br>
+
+### Thanks for your time
+
 
 
 
